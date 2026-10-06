@@ -97,9 +97,9 @@ Data Analytics | MIS | Business Intelligence | Reporting & Operations Analytics
 
 I'm open to connecting with professionals, recruiters and organizations working in the field of Data Analytics, MIS and Business Intelligence.
 
-📧 Email: Your Email
+📧 Email: tushardubey1624@gmail.com
 
-💼 LinkedIn: Your LinkedIn Profile
+💼 LinkedIn: www.linkedin.com/in/tushar-dubey-935208268
 
 📊 GitHub: "Tush1624-lab" (https://github.com/Tush1624-lab)
 
